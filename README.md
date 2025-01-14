@@ -1,3 +1,3 @@
 # README.md
-![image](https://github.com/user-attachments/assets/40d5e21a-bee1-482b-a37f-603aaab2ffb9)
+![image](https://github.com/user-attachments/assets/71db5683-4593-4a09-be29-188f0537736c)
 
