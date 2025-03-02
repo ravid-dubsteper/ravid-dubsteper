@@ -1,1 +1,1 @@
-![Group 6](https://github.com/user-attachments/assets/1fb764db-066c-4df9-82fc-c27aa8d9dbcf)
+![image](https://github.com/user-attachments/assets/4487107f-d887-46bd-b063-dccb61537225)
